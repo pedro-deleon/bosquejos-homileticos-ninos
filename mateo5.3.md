@@ -10,8 +10,7 @@
 
 ## Desarrollo
 1) Bienaventurados
-
-          Explicar la profundidad del significado de ser bienaventurado, singificado de la palabra. 
+          - Explicar la profundidad del significado de ser bienaventurado, singificado de la palabra. 
           
 
 2) Pobres en espiritu
