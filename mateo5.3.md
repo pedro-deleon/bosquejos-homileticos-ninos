@@ -10,14 +10,17 @@
 
 ## Desarrollo
 1) Bienaventurados
+
           - Explicar la profundidad del significado de ser bienaventurado, singificado de la palabra. 
           
 
 2) Pobres en espiritu
+
           - Que es ser pobre en espiritu.
           - Es un signficado de alegría.
 
 3) Es el reino de los cielos
+
           - Recompensa
           - profundidad que nos pertenzca el reino de los cielos      
 
