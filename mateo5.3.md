@@ -11,19 +11,22 @@
 ## Desarrollo
 1) Bienaventurados
 
-          - Explicar la profundidad del significado de ser bienaventurado, singificado de la palabra. 
+          - Bendito (Supremamente)
+          - Estado dichoso basado en Dios
+          - Felicidad
           
 
 2) Pobres en espiritu
 
-          - Que es ser pobre en espiritu.
-          - Es un signficado de alegría.
+          - Carencias, Pobreza económica
+          - Necesidad de Dios
+          - Asocia con humildad
 
 3) Es el reino de los cielos
-
-          - Recompensa
-          - profundidad que nos pertenzca el reino de los cielos      
-
+          - Nos pertenece
+          - Esperanza a algo no perecedero      
 ## Conclusión
+Quiero  ser pobre en espiritu; corazon humilde; necesitado de Dios; devoto a el; entregado por completo
+
 
 ## Llamamiento
