@@ -4,28 +4,23 @@
 
 ## Introducción
 
-- Carencias
-- No poder obtener nada por nuestra cuenta
-- Necesidad que alguien mas nos de
+Contexto del texto.
 
 ## Desarrollo
 1) Bienaventurados
- - Bendito (Supremamente)
- - Estado dichoso basado en Dios
- - Felicidad
+      - Bendito (Supremamente)
+      - Estado dichoso basado en Dios
+      - Felicidad
           
 
 2) Pobres en espiritu
-
-          - Carencias, Pobreza económica
-          - Necesidad de Dios
-          - Asocia con humildad
+      - Carencias, Pobreza económica
+      - Necesidad de Dios
+      - Asocia con humildad
 
 3) Es el reino de los cielos
-
-
-          - Nos pertenece
-          - Esperanza a algo no perecedero 
+      - Nos pertenece
+      - Esperanza a algo no perecedero 
 
     
 ## Conclusión
