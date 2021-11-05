@@ -23,8 +23,12 @@
           - Asocia con humildad
 
 3) Es el reino de los cielos
+
+
           - Nos pertenece
-          - Esperanza a algo no perecedero      
+          - Esperanza a algo no perecedero 
+
+    
 ## Conclusión
 Quiero  ser pobre en espiritu; corazon humilde; necesitado de Dios; devoto a el; entregado por completo
 
