@@ -28,3 +28,4 @@ Quiero  ser pobre en espiritu; corazon humilde; necesitado de Dios; devoto a el;
 
 
 ## Llamamiento
+Oración para tener un humilde delante de Dios y no ser soberbios
