@@ -10,10 +10,9 @@
 
 ## Desarrollo
 1) Bienaventurados
-
-          - Bendito (Supremamente)
-          - Estado dichoso basado en Dios
-          - Felicidad
+ - Bendito (Supremamente)
+ - Estado dichoso basado en Dios
+ - Felicidad
           
 
 2) Pobres en espiritu
