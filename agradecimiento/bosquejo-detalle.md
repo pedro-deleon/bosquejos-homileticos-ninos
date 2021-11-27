@@ -12,7 +12,7 @@ Gratitud
 ### El agradecimiento
 1)  #### Comun
     - alimento;
-    - familia; proverbios 1:8-9
+    - familia; **Proverbios 1:8-9
     - trabajo y escuela;
     - das honra y gloria;
 2)  #### Extraordinario
@@ -21,7 +21,7 @@ Gratitud
     - milagro;
     - sacrificio de acción de gracias;
 3)  #### Aun en lo malo.
-    - porque El esta contigo. Deuteronomio 1:31
+    - porque El esta contigo. **Deuteronomio 1:31
     - va obrar para bien. 
 
 
