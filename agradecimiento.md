@@ -7,8 +7,6 @@ Gratitud
 ## Introducción 
 - historia peregrinos acción de gracias;
 - agradecidos con el Señor;
-- el agradecimiento en la Biblia; 
-
 
 ## Desarrollo
 ### El agradecimiento
