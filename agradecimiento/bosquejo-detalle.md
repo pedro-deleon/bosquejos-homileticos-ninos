@@ -21,7 +21,7 @@ Gratitud
     - sacrificio de acción de gracias;
 3)  #### Das honra y gloria
     - das honra a tu prójimo
-    - y gloria a Dios
+    - y gloria a Dios: los 10 leprosos
     - gozo, oración y gratitud
 5)  #### Aun en lo malo.
     - porque El esta contigo. **Deuteronomio 1:31**
